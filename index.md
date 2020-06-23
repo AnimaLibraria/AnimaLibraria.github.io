@@ -5,6 +5,11 @@ Hermione Granger is my favourite character from the Harry-Potter-Series. She's b
 *smart
 *lovable
 *pretty
+As Hermione said
+>Fear of a name only increases 
+>fear of the thing itself.
+
+
 
 
 
