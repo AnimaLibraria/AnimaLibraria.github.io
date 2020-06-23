@@ -1,4 +1,4 @@
-stephanie@stephanie-B450-AORUS-M:~/Documents/LetsGit/AnimaLibraria.github.io$ # Hermine Granger
+# Hermine Granger
 
 
 
